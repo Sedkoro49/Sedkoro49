@@ -7,6 +7,6 @@
 <br>
 <br>
 
-I'm a Roblox scripter and Discord bot developer. The future holds more greatness.
+Roblox scripter and Discord bot developer. A better greatness awaits.
 <br>
-I dare not say I am a master at any craft; there's always something new to learn.
+Man is not complete without machine.
