@@ -7,6 +7,6 @@
 <br>
 <br>
 
-Roblox scripter and Discord bot developer. A better greatness awaits.
+Roblox scripter and Discord bot developer.
 <br>
 Man is not complete without machine.
